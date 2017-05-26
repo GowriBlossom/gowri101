@@ -3,7 +3,5 @@ iuygiogio
 
 
 
-askfjkalsdfkjadsjfjasfj
-lksdfj;asdjf
 ;lsdkfj;lasdjfalkfjaf
 g
